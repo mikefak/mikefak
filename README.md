@@ -5,4 +5,4 @@ I am currently learning about purple teaming on linux based systems while persui
 
 Reach me at:
 
-fakmike5@gmail.com
+fakhouri.mike@gmail.com
